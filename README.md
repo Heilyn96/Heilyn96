@@ -2,7 +2,7 @@
 
 My name is Heilyn Gonzalez, I am from Dominican Republic but I am currently living in Tampa, Florida. 
 
-![github](C:\Users\jgonzalez.CAROUSEL\Downloads\me.png)
+![Heilyn](C:\Users\jgonzalez.CAROUSEL\Downloads\me.png)
 
 ## I am a Wife, Mother of two and Master's student!
 - 🔭 I’m currently working on my YouTube Channel ... 📺 
